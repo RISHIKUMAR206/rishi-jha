@@ -13,4 +13,4 @@
 
 ## 📫 Connect With Me:
 - LinkedIn:RISHI KUMAR JHA [https://www.linkedin.com/in/rishi-kumar-jha-94ab78283/]
-- Email:rishikumarjha@gmail.com
+- Email:rishikumarjha005@gmail.com
